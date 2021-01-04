@@ -1,1 +1,0 @@
-# wizarimg4ngzd
